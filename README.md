@@ -14,6 +14,6 @@ They shall have stars at elbow and foot;
 Though they go mad they shall be sane,  
 Though they sink through the sea they shall rise again;  
 Though lovers be lost love shall not;  
-And death shall have no dominion.”  
+And death shall have no dominion.”
 
                                   (Dylan Thomas, 1933)
